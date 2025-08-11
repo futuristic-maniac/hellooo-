@@ -1,7 +1,7 @@
 # hellooo!!✮ ⋆ ˚｡𖦹 ⋆｡°✩
-.
-꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
- 
+✩₊˚.⋆☾⋆⁺₊✧
+ ![Image](https://github.com/user-attachments/assets/817bb278-7903-433f-aaab-a8903a7b4779)
+ ✩₊˚.⋆☾⋆⁺₊✧
 
 my nickname is bagel , but you can call me futuristic or maniac!(ˆᗜˆ)
 
