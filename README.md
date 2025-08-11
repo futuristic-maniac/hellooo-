@@ -1,29 +1,101 @@
 # hellooo!!✮ ⋆ ˚｡𖦹 ⋆｡°✩
 .
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
-                 my nickname is bagel , but you can call me futuristic or maniac!(ˆᗜˆ)
+ 
+
+my nickname is bagel , but you can call me futuristic or maniac!(ˆᗜˆ)
 
 feel free to int with me!! i dont bite i promise /ᐠ- w -マ
+
 𓆝 𓆟 𓆞 𓆝 𓆟
+
 you might see me on docks, boat , mafias or hangouts!! 
 
-i sometimes do anon whisps with my friends , thats a random fact but lets add that there. why not ?( ˶°ㅁ°) !!
-![Image](https://github.com/user-attachments/assets/7506fbd9-9c6f-47b8-9423-4d61ef290047)
+i sometimes do anon whisps with my friends , thats a random fact but lets add that there. why not ?( ¬_¬")
 
-psst..ignore that picture. anyways !
+✮ ⋆ ˚｡𖦹 ⋆｡°✩
+
+my pookies are loaf (loafism) and baguette ! she sadly doesnt have a github..sobs quietly
+
+
+
 ✮ ⋆ ˚｡𖦹 ⋆⊹ .✮ ⋆ ˚｡𖦹 ⋆｡°✩. ܁꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩
 
 uh oh , here comes the FANDOM LIST!!!( ˶°ㅁ°) !!
-> Let Him Go,
-> Forsaken,
-> Regretevator,
-> Rochas 313 arg,
-> Puella Magi Madoka Magica,
-> Vocaloid,
-> UTAU,
-> HFJONE,
-> BFDI,
-> TPOT,
+> Let Him Go
+
+
+> Forsaken
+
+
+> Regretevator
+
+
+> Rochas 313 arg
+
+
+> Puella Magi Madoka Magica
+
+
+> Vocaloid
+
+
+> UTAU
+
+
+> HFJONE
+
+
+> BFDI
+
+
+> TPOT
+
+
 > BFDIA
-> BFB,
-> and like ALOT MORE object shows. basically, im in the osc!
+
+
+> BFB
+
+
+> and like ALOT MORE object shows. basically, im in the osc!(..◜ᴗ◝..)
+
+𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟𓆝 𓆟 𓆞 𓆝 𓆟
+
+ദ്ദി ˉ͈̀꒳ˉ͈́ )✧
+
+BUT,my biggest hyperfixations are 
+>insert list,,,,,,,
+
+
+>Let Him Go
+
+
+>Regretevator
+
+
+>HFJONE
+
+
+>Forsaken!
+
+
+my favourite characters are,,
+>broken spawn ,fire ring ! (Let Him Go)
+
+
+>infected , unpleasant gradient , S.T.A.T ! (Regretevator)⋆˚₊ 𖤓☽˚.⋆
+
+
+>Azure(wrath) , Two time , Elliot ! (Forsaken , obviously ! )✩₊˚.⋆☾⋆⁺₊✧
+
+
+> Airy , Liam , Taylor , Amelia ! (HFJONE)⋆˚₊ 𖤓☽˚.⋆
+
+
+alright , thats all (..◜ᴗ◝..). ܁₊ ⊹ . ܁ ⟡ ܁ . ⊹ ₊ ܁.
+thanks for reading , goodbye ! (ˆᗜˆ)
+
+![Image](https://github.com/user-attachments/assets/d7060087-f147-4958-b02d-e91cb1ced0b7)
+
+✮ ⋆ ˚｡𖦹 ⋆｡°✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩
